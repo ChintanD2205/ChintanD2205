@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working forward to build my skills<br>👯 I would love to collaborate on new projects<br>🌱 I’m currently pursuing Diploma in Information Technology at Shri Bhagubhai Mafatlal Polytechnic<br>💬 Ask me about something<br>⚡ Fun fact : Everything is Connected
+🔭 I’m currently working forward to build my skills<br>👯 I would love to collaborate on new projects<br>🌱 I’m currently pursuing BTech in Computer Engineering at Dwarkadas J. Sanghvi College Of Engineering<br>💬 Ask me about something<br>⚡ Fun fact : Everything is Connected
 
 
 ## 🌐 Socials:
